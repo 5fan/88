@@ -1,4 +1,4 @@
-✪ 本站永久网址 https://Github.com/fanba/88 ✪
+✪ 本站永久网址 https://Github.com/5fan/88 ✪
 ###一键翻墙 ✪ 简单快速的翻墙软件 ✪ 即时更新
 ✓完全免费 &nbsp;&nbsp;&nbsp; ✓免安装  &nbsp;&nbsp;&nbsp;  ✓无插件无广告  &nbsp;&nbsp;&nbsp;   [【软件介绍】](https://github.com/znianw/video/issues/18)
 
