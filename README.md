@@ -8,7 +8,7 @@
 
 联系QQ： 840330436 | 481045423 | 944416580 欢迎交流
 ##### ● [【独家】“亚洲最大移植中心”窜起的背后](https://github.com/znianw/video/issues/23) 
-##### ● [【最新】郭案牵出江父子 上海起风暴](https://github.com/znianw/video/issues/20) 
+##### ● [【最新】习抓江不是问题 何日动手有玄机](https://github.com/znianw/video/issues/20) 
 #### ▶ 新纪元周刊 · 本地高速下载（请点击图片直接下载）
 <a href="https://github.com/5fan/5fan/files/295932/N482.pdf"><img src="https://cloud.githubusercontent.com/assets/13546896/15750509/b96df4e2-28b4-11e6-825a-0e7180df12ab.jpg" width="157"></a>
 <a href="https://github.com/5fan/5fan/files/295892/N481.pdf"><img src="https://cloud.githubusercontent.com/assets/13546896/15750508/b9630cda-28b4-11e6-9af5-222d0c435c15.jpg" width="157"></a>
