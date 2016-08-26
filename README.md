@@ -10,10 +10,10 @@
 ##### ● [【独家】“亚洲最大移植中心”窜起的背后](https://github.com/znianw/video/issues/23) 
 ##### ● [【最新】习抓江不是问题 何日动手有玄机](https://github.com/znianw/video/issues/20) 
 #### ▶ 新纪元周刊 · 本地高速下载（请点击图片直接下载）
-<a href="https://github.com/5fan/5fan/files/295932/N482.pdf"><img src="https://cloud.githubusercontent.com/assets/13546896/15750509/b96df4e2-28b4-11e6-825a-0e7180df12ab.jpg" width="157"></a>
-<a href="https://github.com/5fan/5fan/files/295892/N481.pdf"><img src="https://cloud.githubusercontent.com/assets/13546896/15750508/b9630cda-28b4-11e6-9af5-222d0c435c15.jpg" width="157"></a>
-<a href="https://github.com/5fan/5fan/files/295891/N480.pdf"><img src="https://cloud.githubusercontent.com/assets/13546896/15750510/b9817972-28b4-11e6-8881-7ed91c629387.jpg" width="157"></a>
-<a href="https://github.com/znianw/video/files/258406/N479.pdf"><img src="https://cloud.githubusercontent.com/assets/13546896/15167644/9716867a-16f8-11e6-8176-6e07d72a1712.jpg" width="157"></a>
+<a href="https://github.com/5fan/5fan/files/295932/N482.pdf"><img border=0 src="https://cloud.githubusercontent.com/assets/13546896/15750509/b96df4e2-28b4-11e6-825a-0e7180df12ab.jpg" width="157" style="max-width:100%;"></a>
+<a href="https://github.com/5fan/5fan/files/295892/N481.pdf"><img border=0 src="https://cloud.githubusercontent.com/assets/13546896/15750508/b9630cda-28b4-11e6-9af5-222d0c435c15.jpg" width="157" style="max-width:100%;"></a>
+<a href="https://github.com/5fan/5fan/files/295891/N480.pdf"><img border=0 src="https://cloud.githubusercontent.com/assets/13546896/15750510/b9817972-28b4-11e6-8881-7ed91c629387.jpg" width="157" style="max-width:100%;"></a>
+<a href="https://github.com/znianw/video/files/258406/N479.pdf"><img border=0 src="https://cloud.githubusercontent.com/assets/13546896/15167644/9716867a-16f8-11e6-8176-6e07d72a1712.jpg" width="157" style="max-width:100%;"></a>
 #### ▶ 我要三退 
 <div align="left"><a href="https://d8lpk5oj15fw9.cloudfront.net/ogST.aspx"><img src="https://cloud.githubusercontent.com/assets/13546896/14969967/72e4b58a-1093-11e6-98e0-1d076b8a0514.jpg" width="639"></a>
 #### ▶ 大陆禁片 · 免费高速在线观看
