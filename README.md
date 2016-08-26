@@ -30,5 +30,5 @@
 #####[【九评共产党】之一](https://github.com/znianw/video/issues/2) · [之二](https://github.com/znianw/video/issues/3) · [之三](https://github.com/znianw/video/issues/4) · [之四](https://github.com/znianw/video/issues/5) · [之五](https://github.com/znianw/video/issues/9) · [之六](https://github.com/znianw/video/issues/10) · [之七](https://github.com/znianw/video/issues/11) · [之八](https://github.com/znianw/video/issues/12) · [之九](https://github.com/znianw/video/issues/13)
 #####[【真相特刊】毒食品为何屡禁不止？澄清谎言与疑问合集](https://github.com/znianw/video/issues/16)
 ####持续翻墙方法
-- 收藏本站  `https://Github.com/fanba/88`
+- 收藏本站  `https://git.io/88`
 - 邮箱索取 `51@555111.info` 发送一封任意主题的空白信至该邮箱，即可收到最新版翻墙软件。若使用国内邮箱无法收到回信，请用海外邮箱再试一次，肯定能收到。
